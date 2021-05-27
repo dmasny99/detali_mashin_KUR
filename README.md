@@ -1,0 +1,1 @@
+# detali_mashin_KUR
